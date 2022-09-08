@@ -5,7 +5,7 @@
 - ✔️ Buffalo born, Boricua by blood
 - ✔️ Studied Chemical Engineering (BS/MS/PhD)
 - ✔️ Worked at NASA to study how metals condense from the vapor phase 
-- ✔️ Accidentally fell into academia for 14 years before (recently) starting my own research LLC
+- ✔️ Accidentally became a University Professor for 14 years before (recently) starting my own research LLC
 - ✔️ Loves Atmospheric Science, Bad Bunny, and Tetris
 - ✔️ Proud husband and father
 - ✔️ Looking to contribute and collaborate on environmental science, technology, and data (Earth and Space!) 
